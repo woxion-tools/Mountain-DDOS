@@ -1,6 +1,6 @@
-#KEY FOR COME DİSCORD : https://discord.gg/gdEPyQnP8z
+# KEY FOR COME DİSCORD : https://discord.gg/gdEPyQnP8z
 
-#ŞİFRE İÇİN DİSCORD GELİN : https://discord.gg/gdEPyQnP8z
+# ŞİFRE İÇİN DİSCORD GELİN : https://discord.gg/gdEPyQnP8z
 
 # Mountain-DDOS - ENGLISH (TÜRKÇE İÇİN AŞAĞI KAYDIRIN)
 ### Any individual who downloads, installs, or uses this software is deemed to have read, understood, and accepted the following terms:
